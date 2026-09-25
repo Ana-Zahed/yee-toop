@@ -1,2 +1,3 @@
 # yee-toop
-compelete poem
+yee toop daram ghelghlyee
+sorokho sefideo abiye
